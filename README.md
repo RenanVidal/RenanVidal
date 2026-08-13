@@ -31,7 +31,7 @@ I enjoy working with people who play as a team, laugh through the chaos, and bel
 ### 🎲 Fun (and weirdly specific) facts about me
 
 * I’ve been playing tabletop RPGs since my teenage years, and I still get hyped about epic battles, world-building, and chaotic dice rolls.
-* I read *a lot* — from fantasy novels to business strategy books
+* I read *a lot* - from fantasy novels to business strategy books
 * I truly believe every great product starts with *listening*. The rest? That’s what backlogs are for.
 * Hit me up if you ever want to nerd out about data, craft beer, or how to gamify user onboarding.
 
